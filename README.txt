@@ -11,3 +11,6 @@ https://discord.gg/ry6NE9RCQb
 by Dylansitoo / Slowyy
 
 Version: 0.0.2
+
+Preview: 
+https://www.youtube.com/watch?v=vyI89l07Ff4
